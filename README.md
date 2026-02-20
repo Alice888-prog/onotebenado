@@ -1,1 +1,1 @@
-https://github.com/Alice888-prog/onotebenado
+https://github.com/yandex-praktikum/ono-tebe-nado-ad
